@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Liu Kai, also known as @Liu-siyao or xiongya
+- 👋 Hi, I’m Liu Kai, also known as @Liu-siyao or @xiongya00
 - 👀 I’m interested in philosophy
 - 🌱 I’m currently learning philosophy and chemistry
 - 💞️ I’m looking to start a foreign study period
